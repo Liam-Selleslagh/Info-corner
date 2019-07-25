@@ -2,6 +2,8 @@
 
 ## Summary
 
+(no picture availeble, reason not the correct materials and when I can I WILL avoid camera's (I hate taking pictures of myself)
+
 
 
 |  | Gender
