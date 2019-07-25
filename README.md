@@ -51,4 +51,4 @@ My turn rolled around and I did like told I picked up a brick waggled over to th
 This happened around 13 years ago and now that I think of it, it's actually pretty funny knowing that brick wasn't in the mood of being put in a wheelbarrow.
 ###### TL:DR Brick doesn't like being moved and slingshots toward me as payback.
 
-<< previous || Selleslagh Liam || next >>
+[<< previous](https://github.com/Nicnicsai/chapstick-k/blob/master/challenge-repository-Nicole.md) || Selleslagh Liam || [next >>](https://github.com/MouadSoufiani/challenge-repository-MouadSoufiani/blob/master/Readme.md)
